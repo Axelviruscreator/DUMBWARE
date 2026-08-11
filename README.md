@@ -1,1 +1,1 @@
-este ransomware es solo una broma
+este ransomware es uno?
